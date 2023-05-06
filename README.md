@@ -1,5 +1,5 @@
 
-<img width="200" align="right" src="![image](https://user-images.githubusercontent.com/131893843/236634801-6ea0e3d9-09ba-4755-b823-d0bc17b3dc4d.png)">
+<img width="200" align="right" src="https://c.tenor.com/_DOBjnGspYAAAAAM/code-coding.gif">
 
 <h3 align="center">
   Welcome to Ahmed Reda's profile!
